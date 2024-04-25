@@ -1,2 +1,2 @@
-Download the PDF for the assignment Instructions 
+Download the docx file for the assignment Instructions 
 
